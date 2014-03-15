@@ -62,27 +62,5 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ####MÓJ KĄCIK W WYDANIU BLUE
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=26911.html)
 
-####MOJA ŁAZIENKA W WERSKI GLAMOUR
-Ta łazienka to prawdziwy straszak na moich 3 facetów. Kolor FUKSJI skutecznie odstrasza moich Panów. Różowy i wszystkie jego odcienie to  najwięksi wrogowie prawdziwych  facetów :0…tak mówi mój 13 letni syn. A jak kocham róż, fiolet i jego najelegantszy odcień- FUKSJĘ.
-![ŁAZIENKA](http://waszewnetrza.leroymerlin.pl/file,26,file=20439.html)
-![ŁAZIENKA] (http://waszewnetrza.leroymerlin.pl/original/21783_lazienka22.jpg)
-![ŁAZIENKA](http://waszewnetrza.leroymerlin.pl/original/21783_2_lazienka22.jpg)
-
-###MOJA WIELKĄ PASJĄ JEST RENOWACJA STARYCHB MEBLI
-Te stare krzesła w stylu ART DECO upatrzyłam sobie w pewnym bardzo starym pałacu. Leżały w pałacowej piwnicy i pewnie podzieliłyby  los podobnych  cacek, które można teraz jedynie znaleźć w starych urzędach, szkołach i miejscach do których nowoczesny design jeszcze nie dotarł. Powiem WAM w sekrecie, że prawdziwą kopalnią perełek z PRL jest Wydział Matematyki Fizyki i Informatyki UG. Jest tam kilka mebli którymi chętnie bym się zajęła. Moje odnowione krzesełka zostały inspiracją tygodnia na forum LEROY MERLIN podobnie jak moja ultra nowoczesna kuchnia.
-![Krzesełka](http://waszewnetrza.leroymerlin.pl/original/24281_k2.jpg)
-![KRZESŁA](hhttp://waszewnetrza.leroymerlin.pl/original/24281_k2.jpg)
-![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_1_k2.jpg)
-![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_3_k2.jpg)
-![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
-
-### POKOJE CHŁOPCÓW ...wielkie dylematy  i spełnione marzenia moich synów
-Pokoje chłopców: 13 letniego Macieja i 5 letniego Michała to było prawdziwe wyzwanie. Starszy syn zażyczył sobie dwa biurka. Półki pod sufitem na mega kolekcję klocków lego, fotel i krzesło  braci Eames…a wszystko na tle szarości z nutą limonki .
-
-![MACIEK](http://waszewnetrza.leroymerlin.pl/original/22541_1_fff.jpg)
-![Maciek](http://waszewnetrza.leroymerlin.pl/original/22541_3_fff.jpg)
-![Maciek](http://waszewnetrza.leroymerlin.pl/original/22541_fff.jpg)
-
-MICHAŁ marzył o turkusowej ścianie,  samochodach, szafce na zabawki, biurku i obrotowym krześle .
-![MISIO](http://waszewnetrza.leroymerlin.pl/original/21782_pokoj_misia.jpg)
-![MISIO](http://waszewnetrza.leroymerlin.pl/original/21782_1_pokoj_misia.jpg)
+####MOJA ŁAZIENKA W  WERSJI GLAMOUR
+Ta łazienka to prawdziwy straszak na moich 3 face
