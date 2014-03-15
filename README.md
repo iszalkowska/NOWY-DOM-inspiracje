@@ -13,6 +13,7 @@ Urządzając wnętrze w stylu glamour wracamy do XVIII wieku. Do baroku, czasu s
 Jeśli chcemy odmienić swoje wnętrze i urządzić je w stylu glamour bez radykalnych zmian nic prostszego. Wystarczy użyć dodatków i akcesoriów właśnie w tym stylu. Kubki, wazony, świeczniki, zegary, poduszki... Jest tego całe mnóstwo.
 
 ![SALON](http://czasnawnetrze.pl/i/aD02MDAmdz05MDA=/f690b18f/18036-loft_styl_glamour_wnetrze.jpg)
+![JADALNIA](http://www.strefakobiety.pl/media/userfiles/131351/image/004_%20Dekoracje%20glamour/3%20485.jpg)
 ##METAMORFOZA
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 
