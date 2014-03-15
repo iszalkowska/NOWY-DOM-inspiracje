@@ -50,4 +50,5 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=29524.html)
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=27397.html)
+![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,29,file=27918.html)
 
