@@ -57,3 +57,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=25015.html)
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/original/23404_gdynia1.JPG)
 ##Tutaj pracuję, odpoczywam serfuję po internecie, to mój domowy azyl.
+
+###CZAS NA WIOSENNĄ ZMIANĘ
+####MÓJ KĄCIK W WYDANIU BLUE
+![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=26911.html)
