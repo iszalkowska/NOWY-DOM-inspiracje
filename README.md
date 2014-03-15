@@ -17,6 +17,12 @@ Jeśli chcemy odmienić swoje wnętrze i urządzić je w stylu glamour bez radyk
 
 ###TEGO POTRZEBUJESZ ABY BYĆ GLAMOUR
 ![GLAMOUR DODATKI](http://www.strefakobiety.pl/media/userfiles/131351/image/004_%20Dekoracje%20glamour/StrefaKobiety.pl%20485(1).jpg)
+1. Home&You, Wazony 38 – 99 zł; 2. Ikea, Lustro 49,99 zł; 3. Ikea, Miska dekoracyjna 65 zł; 4. Zara Home, Wazon 99 zł; 5. Home&You, Poduszka 35 zł; 6. Ikea, Osłona doniczki 19,99 zł; 7. Home&You, Świecznik 35 zł; 8. Ikea, Lampa 159,99 zł; 9. Home&You, Dekoracja 25 zł; 10. Ikea, Plakat  19,99 zł; 
+
+11. Home&You, Świeca 25 zł; 12. Home&You, Figurka 39 zł; 13. Ikea, Wazon 39,99 zł; 14. Zara Home, Poduszka 159 zł; 15. Ikea, Świecznik 19,99 zł; 16. Zara Home, Poszewki 99 zł; 17. Ikea, Obraz  199,99 zł; 18. Home&You, Lampa 299 zł; 19. Home & You, Lampa wisząca 599 zł; 20. Zara Home Ramki 39,90 – 59,90 zł; 
+
+21. Jysk, Świecznik Karelia , 52 cm, 75 zł (cena reg. 119 zł); 22. Zara Home, Poduszka 99 zł; 23. Black Red White, Lustro fazowane srebrne, 209 zł; 24. Leroy Merlin, Lampa stojąca Phonix 199 zł; 25. Leroy Merlin, Abażur Klasyk 39,97 zł; 26. Leroy Merlin, Lampa stołowa Stanhamn 129 zł
+
 ##METAMORFOZA
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 
