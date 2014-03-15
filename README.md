@@ -65,3 +65,4 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ####MOJA ŁAZIENKA W WERSKI GLAMOUR
 Ta łazienka to prawdziwy straszak na moich 3 facetów. Kolor FUKSJI skutecznie odstrasza moich Panów. Różowy i wszystkie jego odcienie to  najwięksi wrogowie prawdziwych  facetów :0…tak mówi mój 13 letni syn. A jak kocham róż, fiolet i jego najelegantszy odcień- FUKSJĘ.
 ![ŁAZIENKA](http://waszewnetrza.leroymerlin.pl/file,26,file=20439.html)
+![ŁAZIENKA] (http://waszewnetrza.leroymerlin.pl/original/21783_lazienka22.jpg)
