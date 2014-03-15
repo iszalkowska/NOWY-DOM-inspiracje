@@ -74,4 +74,4 @@ Te stare krzesła w stylu ART DECO upatrzyłam sobie w pewnym bardzo starym pał
 ![KRZESŁA](hhttp://waszewnetrza.leroymerlin.pl/original/24281_k2.jpg)
 ![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_1_k2.jpg)
 ![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_3_k2.jpg)
-![Krzesła(]http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
+![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
