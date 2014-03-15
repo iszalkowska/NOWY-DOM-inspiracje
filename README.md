@@ -70,7 +70,8 @@ Ta łazienka to prawdziwy straszak na moich 3 facetów. Kolor FUKSJI skutecznie 
 
 ###MOJA WIELKĄ PASJĄ JEST RENOWACJA STARYCHB MEBLI
 Te stare krzesła w stylu ART DECO upatrzyłam sobie w pewnym bardzo starym pałacu. Leżały w pałacowej piwnicy i pewnie podzieliły by los wielu takich cacek, które można teraz jedynie znaleźć w starych urzędach, szkołach i miejscach do których nowoczesny design jeszcze nie dotarł. Powiem WAM w sekrecie, że prawdziwą kopalnią perełek z PRL jest Wydział Matematyki Fizyki i Informatyki UG. Jest tam kilka mebli którymi chętnie bym się zajęła. Moje odnowione krzesełka zostały inspiracją tygodnia na forum LEROY MERLIN podobnie jak moja ultra nowoczesna kuchnia.
+
 ![KRZESŁA](hhttp://waszewnetrza.leroymerlin.pl/original/24281_k2.jpg)
 ![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_1_k2.jpg)
 ![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_3_k2.jpg)
-![Krzesa](http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
+![Krzesła(]http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
