@@ -46,6 +46,6 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ![KUCHNIA](http://www.kuchenny.com.pl/obrazki/30a3103e27402f5602871bf0bb31091c.jpg)
 ![KUCHNIA](http://cdn1.urzadzamy.smcloud.net/t/photos/t/32418/biala_kuchnia_1318872.jpg)
 
-##METAMORFOZA
+##MOJA KUCHNIA w wydaniu GLAMOUR-SKANDYNAWSKIM
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 
