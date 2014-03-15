@@ -48,5 +48,5 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 
 ##MOJA KUCHNIA w wydaniu GLAMOUR-SKANDYNAWSKIM
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
-!{KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=29524.html)
+![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=29524.html)
 
