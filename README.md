@@ -52,7 +52,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=27397.html)
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,29,file=27918.html)
 
-###GLAMOUR ZNACZY PRZYTULNIA
+###GLAMOUR ZNACZY PRZYTULNA ELEGANCJA
 ##MÓJ KĄCIK W WYDANIU ŚWIĄTECZNYM
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=25015.html)
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/original/23404_gdynia1.JPG)
@@ -61,3 +61,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ###CZAS NA WIOSENNĄ ZMIANĘ
 ####MÓJ KĄCIK W WYDANIU BLUE
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=26911.html)
+
+####MOJA ŁAZIENKA W WERSKI GLAMOUR
+Ta łazienka to prawdziwy straszak na moich 3 facetów. Kolor FUKSJI skutecznie odstrasza moich Panów. Różowy i wszystkie jego odcienie to  najwięksi wrogowie prawdziwych  facetów :0…tak mówi mój 13 letni syn. A jak kocham róż, fiolet i jego najelegantszy odcień- FUKSJĘ.
+![ŁAZIENKA](http://waszewnetrza.leroymerlin.pl/file,26,file=20439.html)
