@@ -10,4 +10,4 @@ $ls -al
 $ssh-keygen -t rsa -C "iwonasz@poczta.onet.pl"
 # Creates a new ssh key, using the provided email as a label
 # Generating public/private rsa key pair.
-# Enter file in which to save the key (/c/Users/you/.ssh/id_rsa): [Press enter]
+# Enter file in which to save the key (/c/User/iszalkowska/.ssh/id_rsa): [Press enter]
