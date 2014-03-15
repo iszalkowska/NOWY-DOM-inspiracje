@@ -62,5 +62,4 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ####MÓJ KĄCIK W WYDANIU BLUE
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=26911.html)
 
-####MOJA ŁAZIENKA W  WERSJI GLAMOUR
-Ta łazienka to prawdziwy straszak na moich 3 face
+
