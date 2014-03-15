@@ -77,8 +77,12 @@ Te stare krzesła w stylu ART DECO upatrzyłam sobie w pewnym bardzo starym pał
 ![Krzesła](http://waszewnetrza.leroymerlin.pl/original/24281_4_k2.jpg)
 
 ### POKOJE CHŁOPCÓW ...wielkie dylematy  i spełnione marzenia moich synów
-Pokoje chłopców: 13 letniego Macieja i 5 letniego Michała to było prawdziwe wyzwanie. Starszy syn zażyczył sobie dwa biurka. Pólki pod sufitem na mega kolekcję klocków lego, fotel i krzesło  braci Eames…a wszystko na tle szarości z nuta limonki 
+Pokoje chłopców: 13 letniego Macieja i 5 letniego Michała to było prawdziwe wyzwanie. Starszy syn zażyczył sobie dwa biurka. Półki pod sufitem na mega kolekcję klocków lego, fotel i krzesło  braci Eames…a wszystko na tle szarości z nutą limonki .
 
 ![MACIEK](http://waszewnetrza.leroymerlin.pl/original/22541_1_fff.jpg)
 ![Maciek](http://waszewnetrza.leroymerlin.pl/original/22541_3_fff.jpg)
 ![Maciek](http://waszewnetrza.leroymerlin.pl/original/22541_fff.jpg)
+
+MICHAŁ marzył o turkusowej ścianie,  samochodach, szafce na zabawki, biurku i obrotowym krześle .
+![MISIO](http://waszewnetrza.leroymerlin.pl/original/21782_pokoj_misia.jpg)
+![MISIO](http://waszewnetrza.leroymerlin.pl/original/21782_1_pokoj_misia.jpg)
