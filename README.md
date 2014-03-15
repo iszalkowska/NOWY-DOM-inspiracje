@@ -2,7 +2,7 @@
 ===================
 
 
-Architektura wnętrz, ich aranżacja, to moja wilka pasja. Odskocznia od codzienności, radość z przywracania świetności starym meblom, obserwowanie jak pomysły, które rodziły się w mojej głowie ożywają i cieszą mnie i moich bliskich.  I chociaż nie mam stosownego wykształcenia bawię się designem, podglądam najlepszych, jeżdżę na targi, czytam, zbieram….Mam trzy  ulubione style, które starałam się odwzorować w moim nowym mieszkaniu, połączyć je tak aby nie wiało nudą, było prosto ale i elegancko. Czy mi się udało…no cóż o gustach się nie dyskutuje. Ja i moi bliscy czujemy się  tu cudownie.
+Architektura wnętrz, ich aranżacja, to moja wielka pasja. Odskocznia od codzienności, radość z przywracania świetności starym meblom, obserwowanie jak pomysły, które rodziły się w mojej głowie ożywają i cieszą mnie i moich bliskich.  I chociaż nie mam stosownego wykształcenia bawię się designem, podglądam najlepszych, jeżdżę na targi, czytam, zbieram….Mam trzy  ulubione style, które starałam się odwzorować w moim nowym mieszkaniu, połączyć je tak aby nie wiało nudą, było prosto ale i elegancko. Czy mi się udało…no cóż o gustach się nie dyskutuje. Ja i moi bliscy czujemy się  tu cudownie.
 
 ##KOCHAM GLAMOUR
 Styl glamour większości kojarzy się przede wszystkim z luksusem, elegancją i ekstrawagancją. Przejawia się w modzie, stylu życia jak również aranżacji wnętrz.
@@ -52,3 +52,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,27,file=27397.html)
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/file,29,file=27918.html)
 
+###GLAMOUR ZNACZY PRZYTULNIA
+##MÓJ KĄCIK W WYDANIU ŚWIĄTECZNYM
+![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=25015.html)
+Tutaj pracuję, odpoczywam serfuję po internecie, to mój domowy azyl.
