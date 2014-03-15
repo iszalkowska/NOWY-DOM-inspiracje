@@ -23,6 +23,21 @@ Jeśli chcemy odmienić swoje wnętrze i urządzić je w stylu glamour bez radyk
 
 21. Jysk, Świecznik Karelia , 52 cm, 75 zł (cena reg. 119 zł); 22. Zara Home, Poduszka 99 zł; 23. Black Red White, Lustro fazowane srebrne, 209 zł; 24. Leroy Merlin, Lampa stojąca Phonix 199 zł; 25. Leroy Merlin, Abażur Klasyk 39,97 zł; 26. Leroy Merlin, Lampa stołowa Stanhamn 129 zł
 
+###STYL SKANDYNAWSKI
+
+Rozsławiony na początku ubiegłego wieku przez szwedzkiego malarza i projektanta wnętrz Carla Larssona, styl skandynawski nieprzerwanie od wielu lat zdobywa nowych wielbicieli. Niewątpliwie przyczyną tego fenomenu jest bardzo duża uniwersalność stylu skandynawskiego, który sprawdza się zarówno w typowych wielkomiejskich mieszkaniach jak i w domach położonych na uboczu wielkich aglomeracji.
+
+Styl skandynawski to przede wszystkim jasne, harmonijne i do pewnego stopnia minimalistyczne wnętrza, w których największy nacisk kładzie się na wygodę i funkcjonalność. Biel, która w skandynawskich wnętrzach towarzyszy nam praktycznie na każdym kroku powoduje, że nawet niewielkie mieszkania stają się optycznie powiększone, a przede wszystkim bardziej wypełnione światłem. W Skandynawii, w której wystepuje ciągły deficyt światła słonecznego ma to niebagatelne znaczenie. Z tego też powodu również bardzo często rezygnuje się z wszelkich ozdób okien, firan itp.
+
+Skandynawowie żyją bardzo blisko i w harmonii z naturą i bardzo wyraźnie widać to w ich wnętrzach, głównie za sprawą stosowanych przez nich naturalnych materiałów. Drewno, len, bawełna ale również robiąca karierę na całym świecie juta, to nieodłączne elementy każdego skandynawskiego wnętrza. Dzięki temu, skandynawskie mieszkania, które na pierwszy rzut oka wydają się nieco zimne zyskują bardzo ciepły i przytulny klimat.
+
+Cechą charakterystyczną skandynawskich wnętrz jest również powtórne wykorzystywanie zdawałoby się zużytych już i niepotrzebnych przedmiotów, akcesoriów lub mebli. Bardzo często stosuje się meble, które swoją pierwszą młodość mają już dawno za sobą. Nierzadko rezygnuje się z renowacji i pozostawia je w niezbyt perfekcyjnym stanie, aby było widać, że są już nadgryzione zębem czasu. Jest to niezwykle prosty do przeprowadzenia zabieg aranżacyjny, ale często dający zaskakujące, niesamowite wręcz efekty.
+
+Skandynawskie ozdoby i dekoracje
+
+Najważniejszym jednak elementem skandynawskiego stylu są pięknie zaprojektowane, niebanalne dodatki, które w surowych skandynawskich wnętrzach stanowią główny element dekoracyjny. Poduchy dekoracyjne, świeczniki, lampiony, ciekawie zaprojektowane lampy oraz wszelkiego rodzaju dekoracje sprawiają, że ozdobione nimi wnętrza nabierają niepowtarzalnego charakteru…
+
+
 ##METAMORFOZA
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 
