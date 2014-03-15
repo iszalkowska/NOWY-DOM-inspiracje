@@ -37,6 +37,14 @@ Skandynawskie ozdoby i dekoracje
 
 Najważniejszym jednak elementem skandynawskiego stylu są pięknie zaprojektowane, niebanalne dodatki, które w surowych skandynawskich wnętrzach stanowią główny element dekoracyjny. Poduchy dekoracyjne, świeczniki, lampiony, ciekawie zaprojektowane lampy oraz wszelkiego rodzaju dekoracje sprawiają, że ozdobione nimi wnętrza nabierają niepowtarzalnego charakteru…
 
+![SYPIALNIA](http://property.webd.pl/wp-content/uploads/2012/07/208518_kastellg_24_high_0005.jpg)
+
+####Surowa, praktyczna kuchnia skandynawska
+
+Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są proste, pozbawione ozdób, wręcz ascetyczne, ale eleganckie i praktyczne. Nie znajdziemy tu ażurowych frontów czy listew ozdobnych. Podłoga powinna być drewniana często bielona. Jesion, klon i sosna najczęściej z tych gatunków wykonane są meble. I obowiązkowo białe albo beżowe, ecru ściany. Tą chłodną kolorystycznie kuchnię można ożywić przez wprowadzenie barwnych, cieplejszych akcentów. Taką rolę pełnią ozdobne dodatki, ceramika, kolorowe szkło, wiklina, kamień, wszystko z umiarem i naturalne. To elegancka, prosta i wygodna kuchnia. Nie może być przeładowana bibelotami jak w kuchni rustykalnej. Nie ma miejsca na bałagan, zbytek czy niepotrzebne rzeczy. Zamiast bogatych firanek czy zasłon wystarczy bawełniana roleta bądź żaluzja. 
+
+![KUCHNIA](http://www.kuchenny.com.pl/obrazki/30a3103e27402f5602871bf0bb31091c.jpg)
+![KUCHNIA](http://cdn1.urzadzamy.smcloud.net/t/photos/t/32418/biala_kuchnia_1318872.jpg)
 
 ##METAMORFOZA
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
