@@ -12,7 +12,7 @@ Styl glamour to przed wszystkim mocne, żywe, jaskrawe  i nasycone kolory. To ko
 Urządzając wnętrze w stylu glamour wracamy do XVIII wieku. Do baroku, czasu stylowych mebli, luksusu i przepychu. Meble stylizowane na tamte, historyczne czasy idealnie pasują do takiego wnętrza. Nadadzą mu klasy, a tym samym uspokoją je jeśli wybierzemy stonowane kolory. Jeśli jednak chcemy by takie pomieszczenie w stylu glamour było ekscentryczne wybierzmy meble o odważnych barwach.
 Jeśli chcemy odmienić swoje wnętrze i urządzić je w stylu glamour bez radykalnych zmian nic prostszego. Wystarczy użyć dodatków i akcesoriów właśnie w tym stylu. Kubki, wazony, świeczniki, zegary, poduszki... Jest tego całe mnóstwo.
 
-
+![SALON](http://czasnawnetrze.pl/i/aD02MDAmdz05MDA=/f690b18f/18036-loft_styl_glamour_wnetrze.jpg)
 ##METAMORFOZA
 ![KUCHNIA](http://waszewnetrza.leroymerlin.pl/original/22777_978675.JPG)
 
