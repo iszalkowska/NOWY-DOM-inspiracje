@@ -69,4 +69,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ###NOWE ŻYCIE STARYCH KRZESEŁ
 
 Wypatrzyałam je przypadkiem i reaktywowałam do    życia. To prawdziwy relikt PRL-u, cudowne krzesełka w stylu ART DECO.  Takie pereki można dzisiaj znaleźć jedynie w miejscach o których nowoczesny design zapomniał. Powiem Wam w sekrecie, że kopalnia takich cudeniek jest Wydzia ł Mat. Fiz. i Inf. na UG. Na każdym piętrze znajdziecie tam hity Polskiego designu z lat 60 i 70. 
-k
+
+![CHAIR](http://waszewnetrza.leroymerlin.pl/original/24281_k2.jpg)
+![CHAIRA](http://waszewnetrza.leroymerlin.pl/original/24281_1_k2.jpg)
+![CHAIRB](http://waszewnetrza.leroymerlin.pl/original/24281_3_k2.jpg)
