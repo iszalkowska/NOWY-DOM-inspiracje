@@ -62,4 +62,7 @@ Charakterystyczne dla tej kuchni są jasne, często białe meble. Szafki są pro
 ####MÓJ KĄCIK W WYDANIU BLUE
 ![MÓJ AZYL](http://waszewnetrza.leroymerlin.pl/file,29,file=26911.html)
 
+###BABSKA KUCHNIA Z NUTĄ GLAMOUR
+
+![LAZIENKA](http://waszewnetrza.leroymerlin.pl/original/21783_lazienka22.jpg)
 
