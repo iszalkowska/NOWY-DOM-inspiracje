@@ -1,4 +1,4 @@
-#NOWY-DOM-inspiracje
+#NOWY-DOM-INSPIRACJE
 ===================
 
 
